@@ -137,6 +137,42 @@ up in the domes.
 
 ## Zipline
 
+It was called the Richard Branson Memorial Slideway, named after the
+greatest civilian astronaut of all time. But everyone called it the
+Zipline.
+
+My great grandfather claimed to have met Sir Richard. It was a story he
+told at every family gathering, without fail.
+
+"You know, once I met Sir Richard," he'd begin.
+
+"You did not, you old coot," G G Ma would cut him off. "You weren't even
+born yet!"
+
+Great grandfather would give me a big exaggerated wink. I had no idea
+what that meant.
+
+The first time he told the story, I looked up what 'Coot' meant. A coot,
+the article said, was "a medium-sized water bird that is a member of the
+Rallidae (rail) family." What more proof did I need? Great grandfather
+was clearly a rail rider, and, so, ipso facto, must have actually met
+Sir Richard. Q E friken D, as my big brother would have said.
+
+When I explained my theory to him, he just rolled his eyes at me.
+
+Years later, I realized that it was just a story that Great grandfather
+told to irritate G G Ma.
+
+Years later still, I realized that it was just part of the game that
+they played, because they were so in love, and had these games they
+played. All. The. Time.
+
+It's weird how kids so seldom understand the adults in their lives, even
+the ones that they're the closest to.
+
+(For what it's worth, he did, in fact, meet Sir Richard, sort of. But
+that's a story for another time.)
+
 ## New London
 
 If there's anything you can count on, when people move to a new place
@@ -151,4 +187,78 @@ in the new.
 ## Finish Line
 
 ## Conspiracy
+
+"We're out!" screamed the tall man, practically foaming. His tie, so
+immaculate in the TV photo ops, was pulled down and to one side, and his
+eyes were red with rage.
+
+"Out. No more double-platinum sponsorship. No more shuttles to the moon
+for your pretty boys. No more TV campaign. No more. Done."
+
+Sitting at the huge mahogany desk, Mr. G appeared unperturbed. He ran
+his fingers lovingly over the smooth surface of the desk, remembering
+that it had cost more to bring it to the moon than this worm had paid
+for the TV spots in the latest race.
+
+A single desk lamp shone on the desk surface, reflecting dully up into
+his large face, the bushy eyebrows leaving his eyes hidden. He pushed a
+few folder around, and let the sponsor fume for just a moment longer.
+
+Still, he was an important sponsor. Better make a show of caring.
+
+"Please, calm yourself, Larry. Nobody could have predicted. And look at
+the coverage." He gestured to the screen, where the moment was being
+played back for the millionth time. "The movie rights alone ..."
+
+"We paid to win, not for some sappy greeting card photo finish. She
+LOST. She's no champion. She lost. We're out!"
+
+He turned, flung the door open so hard that the knob embedded in the
+wall, and stormed out, leaving a trail of open-mouthed assistants,
+secretaries, and the late-night cleanup crew who had just arrived,
+staring after him.
+
+Mr. G sat quietly for a moment. He briefly made eye contact with one of
+the hovering assistants, who closed the door. With the snick of the hasp,
+the room was restored to quiet, nothing but the tick of the ancient
+clock - it, too, worth more than the puny sponsor so recently departed -
+breaking the silence.
+
+He took a deep breath, exhaled softly.
+
+Then
+
+"As planned. Are you in for next year, then?"
+
+A shadow emerged from the shadows.
+
+"As planned? How could you possibly know?" The look on his face was
+admiring, but also a little frightened.
+
+"Are you in, or not? The opportunity will not arise again."
+
+Mr. G picked up a folder from his desk, and held it over the waste paper
+basket, raising his eyebrows ever so slightly as he glanced up at the
+thin man, standing in the gloom.
+
+"Oh, yes, of course, we're in. As agreed. Of course. No, we wouldn't
+think of backing out."
+
+"Excellent."
+
+The folder was placed back on the desk, and Mr. G went back to perusing
+some papers, as though he was alone again.
+
+Several minutes later, the thin man cleared his throat. "Uh ... sir
+...?"
+
+Mr. G looked up.
+
+"You're still here." A statement, not a question, but with an implied
+threat.
+
+"No. No sir."
+
+He slipped into the hallway, leaving the gears of commerce to tick
+softly in the darkness.
 
